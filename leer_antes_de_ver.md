@@ -1,4 +1,4 @@
-# PROGRAMACIÓN 2024
+# PROGRAMACIÓN 2024, SOFÍA OTERO
 ## Primer trimestre
 
 
